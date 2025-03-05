@@ -1,0 +1,1 @@
+Today 4/3/25 i commence on learning python and its basics,doing my assignments and daily lessons without no excuses,self learning on my own as well to attain more knowledge in python field,at the end of this session i shall be proficient with python,so help me God,Amen.
